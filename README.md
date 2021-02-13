@@ -66,7 +66,7 @@ content :  text
 ***
 ### Blog : 
 
-
+https://note.com/knaka0209/n/n971f600d973c
 
 ***
 
